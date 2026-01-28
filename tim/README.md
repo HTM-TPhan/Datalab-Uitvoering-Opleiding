@@ -1,1 +1,1 @@
-lekker helemaal leeg gemaakt, hahaha
+Ok, ik hoop dat ik niks doe wat anderen in de tussenweg zit, maar bij deze nog een mooi nieuw idee
